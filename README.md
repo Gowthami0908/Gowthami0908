@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gowthami0908
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning 4th sem csse
+- 🌱 I’m currently learning 5th semester btech in computer science and systems engineering
 - 💞️ I’m looking to collaborate on ...internships
 - 📫 How to reach me ...gowthamianandthalari@gmail.com
 - 😄 Pronouns: ...
