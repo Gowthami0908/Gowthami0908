@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gowthami0908
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning 6th semester btech in computer science and systems engineering
+- 🌱 I’m currently learning 7th semester btech in computer science and systems engineering
 - 💞️ I’m looking to collaborate on ...internships
 - 📫 How to reach me ...gowthamianandthalari@gmail.com
 - 😄 Pronouns: ...
